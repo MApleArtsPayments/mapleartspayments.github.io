@@ -11,3 +11,6 @@ Payment for the Arts ........ Arts flow life....... work today get paid today.
 ![image](https://user-images.githubusercontent.com/108437230/208500262-dd4bce1d-6cca-4586-9c12-77d1be6c1d2d.png)
 ![image](https://user-images.githubusercontent.com/108437230/208500290-e8d93130-c796-430b-8249-8afca6db0e7f.png)
 ![image](https://user-images.githubusercontent.com/108437230/208500327-847b9f07-0078-4060-98b1-294049260e33.png)
+![image](https://user-images.githubusercontent.com/108437230/208500400-bcd48d50-83a5-4087-b694-2ce6ad55c2fe.png)
+![image](https://user-images.githubusercontent.com/108437230/208500427-752646a6-3e07-44be-9969-d7d5c323d9a6.png)
+![image](https://user-images.githubusercontent.com/108437230/208500457-065221f3-5b55-4f6f-9021-49d3a3c36fd4.png)
